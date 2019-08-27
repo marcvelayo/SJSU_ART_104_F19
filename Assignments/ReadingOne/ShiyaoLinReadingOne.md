@@ -1,9 +1,8 @@
 This is the folder for reading one.
 
+ARE YOU THERE?
 
 http://switch.sjsu.edu/archive/wp/v28/index.html%3Fp=531.html
-
-ARE YOU THERE?
 
 Are You There is an article published in the year 2013, by performance artist Liz Solo. Liz Solo also considers herself as a Virtual Interventionist, where she did several collaboration projects that breaks into different virtual games and explore different roles of technology.
 
@@ -13,9 +12,10 @@ Then the article comes to a discussion of Second Life. Liz Solo says, “For som
 I also believe that without reality, virtual spaces couldn’t exist. We have to acknowledge that the virtual spaces were built upon reality. I think people are not just in love with virtual world, but rather in love with it intertwined with the reality.
 
 
-http://switch.sjsu.edu/archive/wp/v28/index.html%3Fp=520.html
 
 PAINTING DATA: WHEN ART GOES VIRTUAL
+
+http://switch.sjsu.edu/archive/wp/v28/index.html%3Fp=520.html
 
 Oberon Onmura, the author of the article discusses the role of the art when it comes to the virtual environment. If artists are considered agent of creation, the content of creation becomes very questionable and critical in virtual environment. In fine art, turning paint into painting is the process of creating something, there’s a “craftsmanship” there, but how about virtual? There’s only data, and the process can not be seen. Even show the process to the audience, the majority of them will not understand. I think this is the reason why people are being hyper-critical on digital art today (compare to fine art), and why some people still can’t define virtual art as “art” in general. 
 
