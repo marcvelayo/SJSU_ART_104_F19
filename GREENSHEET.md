@@ -83,14 +83,14 @@ Schedule
 | *Week 6* 09/25      | **Reading 5 Due** ** Presentation + Discussion ** **Reading 6: Assigned in Class** ** Final Paper Requirements Posted to the Git. Students will present their ideas on 11/11 to the class. |
 | *Week 7* 10/02      | **Reading 6 Due** ** Presentation + Discussion ** **Reading 7: Assigned in Class** ** Group Work Beginning Research For Final |
 | *Week 8* 10/09      | **Reading 7 Due** ** Presentation + Discussion ** **Reading 8: assigned in class** ** Research and in class work on papers **Students Should Have 8 to 10 sources identified for Bibliography**|
-| *Week 9* 10/16      | **No In-Class Meeting** **Reading 8 Due to class Git** **Reading 9: posted** ** Research with team members on papers |
-| *Week 10* 10/23     | **Spring Recess - No Class!** |
+| *Week 9* 10/16      | **Reading 8 Due to class Git** **Reading 9: posted** ** Research with team members on papers |
+| *Week 10* 10/23     | **Reading 9 Due to class Git** **Reading 10: posted** ** Research with team members on papers |
 | *Week 11* 10/30     | ** Presentation + Discussion ** **No Reading Assigned for Next week: First Draft of Final Due** ** Research and in class work on papers |
-| *Week 12* 11/06     | **First Draft of Final Papers Due** ** Presentation + Discussion ** **Reading 10: assigned in class** ** Research and in class work on papers ****|
+| *Week 12* 11/06     | **First Draft of Final Papers Due** ** Presentation + Discussion ** **Reading 11: assigned in class** ** Research and in class work on papers ****|
 | *Week 13* 11/11     | ATC 9-12:30 MLK 225 |
 | *Week 13* 11/12     | ATC 9-12:30 MLK 225 |
 | *Week 13* 11/20     | ** Presentation + Discussion ** **Reading 11: assigned in class** ** Research and in class work on papers |
-| *Week 13* 11/27     | **Hammer Graduating Group Show** |
+| *Week 13* 11/27     | THANKSGIVING :D |
 | *Week 14* 12/04     | **Reading 9 Extra Credit Due** Research and in class work on papers |
 | *Week 15* 05/07     | Final presentations ** Final 7-page paper due no later than Sunday, December 17th The final paper and project format will be assigned in class on Wednesday, November 4th and available online in PDF format |
 | *Final* 5/21 @ 5:15 | Final Released |
