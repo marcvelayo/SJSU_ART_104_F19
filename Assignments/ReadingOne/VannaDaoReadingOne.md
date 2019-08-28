@@ -1,1 +1,15 @@
+Reading 1
+
+http://switch.sjsu.edu/archive/nextswitch/switch_engine/front/front.php%3Fartc=197.html
+
+  The first article I read is “New Media in Academia” by Brett Stalbaum. This article discusses about the differences between studio and classroom style teaching of art courses. Learning the difference between the two teaching style is very interesting especially studio art. This was the first time I learned that studio model originated from Europe. When I learned that studio model is a very expensive art courses, it made me think of how only the higher class family could afford these art courses back then. I can see why only a few people were able to take art courses. Studio model gives more freedom to the students, where they are on independent on what projects they want to work on and they have their own studio arranged with the instructor of their choosing. This way of teaching allows the student to appreciate their own style of art and improve on it as time goes by. Throughout my whole life, I’ve only experienced classroom model where I am with many other students and an instructor gives us instructions. I believe now there is independent self art study offered in art schools in America which is very similar to studio model since it has similar concepts where a student works independent with an instructor. 
+
+
+http://switch.sjsu.edu/archive/nextswitch/switch_engine/front/front.php%3Fartc=187.html
+
+  The second article I read is “An Introduction to Virtual Reality” by Leda Kanellakos. I see virtual reality as a unique technology and has advanced in many ways throughout the past years. Many games now involve virtual reality to improve the gaming experience. In the reading, there are studies saying that people can get accustomed to virtual reality. However, l agree with what the author stated in the article with how living in this kind of “reality” is very difficult. I can’t see myself living in this kind of “reality” to have everything accustomed to the way I want. I feel like virtual reality is an easy way out to escape from reality. Because in reality, I know that I will need to work hard in order to get what I want or need. When the author mentioned how virtual reality can be used to manipulate others by changing the body to the way the user wants, it made me feel very afraid of meeting others through this “reality”. Anyone can pretend to be someone and hide their true selves. 
+
+  I believe now there are studies going on with someone living in virtual reality where they wear the headset everyday. I’m not sure how it is going for them but I know that I wouldn’t be able to handle this experiment. I’m imagining how it feels like wearing a virtual reality headset and waking up in virtual reality everyday. I feel like this could be a dream that I can control and will go the way I desire.
+
+  I believe virtual reality is something that could be a hobby to do for fun but not something to be applied to everyday life. I don’t want to confuse what reality and what’s not reality. 
 
