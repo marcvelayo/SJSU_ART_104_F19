@@ -1,4 +1,5 @@
 Interview: Game Girlz 
+
 Geri Wittig on Jul 16 1999
 
 I feel like I got lucky when I stumbled across this article, just because it revolved around my interests and it was not too difficult to understand. It’s an interview with Vangie “Aurora” Beal, who was the director of the site GameGirlz. The site is long gone, but I was able to get a peek of it using the Way Back Machine (thank you, Andrew). The site was an online gaming resource catered to women, meant to be more inclusive and considerate—none of that demeaning language and imagery often found in online gaming forums run by men, at the time. 
