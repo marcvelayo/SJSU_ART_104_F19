@@ -1,1 +1,13 @@
 
+Christian Calinawan
+Reading 1
+Art 104
+August 28, 2019
+
+http://switch.sjsu.edu/archive/nextswitch/switch_engine/front/front.php%3Fartc=197.html
+New Media in Academia (Jun 14, 2000)
+
+In this article, the author compared two main education models in New Media Art Education: the classroom model and the studio model. He wrote that the studio model is a less constrained situation for the student, giving the student the responsibility of arranging and choosing the instructors they wish to work with. They are also more responsible for thinking of their ideas for their artwork. This teaching model is usually combined with lectures, workshops, and critiques. On the other hand, the classroom model is a more traditional situation in which the student listens to their teachers, discusses, and works in a classroom. Assignments are given to the students. 
+The author then wrote about the background of these two models in terms of cultural and historic traditions. The studio model is said to have originated form European tradition when the art institution was separate from the University. The European art education was highly competitive, as hundreds of students competed for about twenty spots. The limited openings led to high competition as well as putting the student more in charge of their work. The classroom model of art teaching is what we have today. In North America, art students generally start off in the classroom model early on and as their responsibilities as an art student would increase as they reach a higher grade level. They would transition from the classroom model to the studio model as a graduate student. The classroom model is a more inclusive model found more often in the US, while the studio model keeps its roots in higher European art education with its more exclusive view of the artist.
+
+I think it’s interesting as this article is from 2000. Nineteen years later and the art education system explained in this article is still similar to the system of today. At SJSU, we start off in the classroom model with general education courses and early level general art courses and as we move higher up, we also transition to the studio model, with more specified art courses and teachers with more freedom in what the students want to make with their artwork. In addition, I do think there are traits of the studio model that can be found in the classroom model. For example, in the classroom model, students are still allowed artistic freedom and are allowed to be creative with their assignments. Classroom model students are also invited to lectures and workshops, so perhaps the studio model is not as exclusive as it used to be. 
