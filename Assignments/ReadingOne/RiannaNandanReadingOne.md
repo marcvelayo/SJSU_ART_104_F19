@@ -10,9 +10,9 @@ Article: Intellectual Property in the Age of Digital Reproduction
 
 Article: Here be Dragons!
 
-	Through our technologies of communications and media, people are able to experience parts of the world so far removed from their daily lives with incredible ease. However, this also removes a bit of the mystery for us - unlike those who lived in medieval and ancient times, we now know what exists (and what doesn’t) in most of our known world. 
+   Through our technologies of communications and media, people are able to experience parts of the world so far removed from their daily lives with incredible ease. However, this also removes a bit of the mystery for us - unlike those who lived in medieval and ancient times, we now know what exists (and what doesn’t) in most of our known world. 
 
-	Thus, artists and scientists are seeing what limits they can push with biotechnology. 
+   Thus, artists and scientists are seeing what limits they can push with biotechnology. 
 
 
 
