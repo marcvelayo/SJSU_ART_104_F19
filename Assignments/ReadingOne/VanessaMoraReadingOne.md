@@ -2,6 +2,7 @@ Interview: Game Girlz
 
 Geri Wittig on Jul 16 1999
 
+
 I feel like I got lucky when I stumbled across this article, just because it revolved around my interests and it was not too difficult to understand. It’s an interview with Vangie “Aurora” Beal, who was the director of the site GameGirlz. The site is long gone, but I was able to get a peek of it using the Way Back Machine (thank you, Andrew). The site was an online gaming resource catered to women, meant to be more inclusive and considerate—none of that demeaning language and imagery often found in online gaming forums run by men, at the time. 
 
 While reading the article, I constantly had to remind myself that this is from 1999. And it frustrated me. It’s upsetting how some of the issues mentioned in the interview are still issues today, as if nothing’s changed in the last 20 years. Beal talks a little about the meaning of feminism and how equality is its underlying goal, a simple point that so many people seem to miss nowadays. It’s as if everyone thinks feminism is about creating a matriarchal world, which isn’t the case. It’s about leveling the playing field between men and women and having neither a patriarchal nor matriarchal world but a balanced one. 
