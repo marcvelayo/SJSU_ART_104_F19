@@ -5,8 +5,8 @@ If we look at the advertisements now, the concept and design is made to appeal t
 things that advertise or get caught up with the artworks. Through the internet, there are many pornographic pictures and advertisements. 
 Many of those images have nudity and many have their eyes looking at the camera for the audience. The way the models pose is also to 
 appeal to the audience. Today, women are still getting called names for dressing in their erotic images. Many images I realize on the 
-internet, the models have the perfect body figure similar to the paintings from the past. That’s something that still occurs to us and 
-I feel like showing the perfect body figure is a body shame for the women who don’t have that body type. 
+internet, the models have the perfect body figure similar to the paintings from the past. That’s something that still occurs to us but 
+now there are brands that are being more diverse with different body types and nationality.
 
 Portraits were only bought by the rich. Many of the portraits were about the rich class people. It’s interesting how there were only 
 a few paintings of the rich class. The lower class do not own a portrait nor were painted in a portrait. But today, we see portraits of 
