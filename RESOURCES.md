@@ -40,3 +40,17 @@ Class Website: https://github.com/ablanton/SJSU_ART_104_F19
 7. Virtuosity https://www.youtube.com/watch?v=n6iU66Y1CtU
 8. Tony Conrad Flicker https://www.youtube.com/watch?v=yY5VryfCRig
 9. VR Reaction https://www.youtube.com/watch?v=l3V8zeSljUU
+
+9/4
+----------
+1. mu! Disrupt https://vimeo.com/153666112
+2. Learning to See: Gloomy Sunday Memo Akten https://vimeo.com/260612034
+3. Amazon Mechanical Turk https://www.mturk.com/
+5. Gutenberg Press https://en.wikipedia.org/wiki/Printing_press
+6. Palace of Versailles https://earth.google.com/web/@48.80447811,2.12156773,138.87262454a,929.99728047d,35y,-99.18941334h,45.00166982t,0r/data=ClgaVhJOCiQweDQ3ZTY3ZDk0ZDdiMTRjNzU6MHg1MzhmY2MxNWY1OWNlOGYZYpkj0AVnSEAhDS1X5Hz2AEAqFFBhbGFjZSBvZiBWZXJzYWlsbGVzGAIgASgC
+7. I will say whatever you want in the font of pizza http://i-will-say-whatever-you-want-in-front-of-a-pizza.schloss-post.com/
+8. Sousveillance https://www.google.com/search?q=sousveillance&tbm=isch&source=iu&ictx=1&fir=CeNeHQCVglPUOM%253A%252C2zt-MvZ6CVxbLM%252C%252Fm%252F02lw0c&vet=1&usg=AI4_-kQ9Z-CG6D1BZ6HvWl4C7n6TA5idgg&sa=X&ved=2ahUKEwj9yJOrobjkAhWGv54KHaVBBesQ9QEwAHoECAUQAw#imgrc=CeNeHQCVglPUOM:
+9. Dark Patterns https://www.darkpatterns.org/hall-of-shame
+10. Fake friends with real benefits https://medium.com/i-data/fake-friends-with-real-benefits-eec8c4693bd3
+11. IRUS Art http://www.morehshin.com/irus-art-project/
+12. How and why to leave facebook https://www.youtube.com/watch?v=JEeR9jUsiyo
