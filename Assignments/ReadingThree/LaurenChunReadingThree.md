@@ -1,1 +1,2 @@
 
+	The James Bridle’s, New Ways of Seeing, podcast tackles the same ideas as John Berger’s, Ways of Seeing documentary with a technological update.Through the accounts of artists through the four episodes we hear how technology has been reimagines to help different causes despite the traditional uses of these technologies. Bridles also examines how nature and technology are connected. Nature is being harmed as the usage of technology increases. 
