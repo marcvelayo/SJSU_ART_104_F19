@@ -1,4 +1,7 @@
-	The James Bridle’s, New Ways of Seeing, podcast tackles the same ideas as John Berger’s, Ways of Seeing documentary with a technological update. Through the accounts of artists through the four episodes we hear how technology has been reimagines to help different causes despite the traditional uses of these technologies. Bridles also examines how nature and technology are connected. Nature is being harmed as the usage of technology increases. 
+
+
+
+The James Bridle’s, New Ways of Seeing, podcast tackles the same ideas as John Berger’s, Ways of Seeing documentary with a technological update. Through the accounts of artists through the four episodes we hear how technology has been reimagines to help different causes despite the traditional uses of these technologies. Bridles also examines how nature and technology are connected. Nature is being harmed as the usage of technology increases. 
 
 As we continue to upgrade our technology, we are introduced to new ways of possibly helping the earth as well. The podcast starts with talking about cybernetic forests, a concept of using blockchain crypto currency to pay for flowers which would go into investing in environmentally friendly projects and land. This idea gives the flowers agency of sorts. The project gives nature a chance to use our currency to fund global environmental projects.  I think this is a great idea and it gets me thinking about what I as an artist can do to help with this cause or to just be more conscious of my decisions in materials and medium as an artist. Choosing PLA instead of ABS can be a cheap and easy way to be health conscious. Even as a person, I can choose to eat a more plant-based diet to reduce the need to farm meat which takes away from untouched natural lands. 
 
