@@ -4,4 +4,4 @@
 
 “Machine Visions” is especially relevant today with “deepfake” technologies entering the mainstream. These algorithms are able to create and edit videos and photos to be indistinguishable from reality, causing us humans to question what’s real, and what is true evidence. 
 
-
+“Invisible Networks” brings to mind how our social spheres on the internet can shape the rest of the information that we see. Algorithms dictate the kinds of things that we see, which are usually tailored to our current interests and views, not showing things outside of our perceived sphere of interests. There are some exceptions to this - YouTube constantly pushing right-wing videos regardless of the viewer is one - but overall, having a limited view of the internet can be an issue for several reasons. 
