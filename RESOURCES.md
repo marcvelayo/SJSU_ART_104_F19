@@ -54,3 +54,23 @@ Class Website: https://github.com/ablanton/SJSU_ART_104_F19
 10. Fake friends with real benefits https://medium.com/i-data/fake-friends-with-real-benefits-eec8c4693bd3
 11. IRUS Art http://www.morehshin.com/irus-art-project/
 12. How and why to leave facebook https://www.youtube.com/watch?v=JEeR9jUsiyo
+
+9/11
+1. Wood Wide Web https://www.newyorker.com/tech/annals-of-technology/the-secrets-of-the-wood-wide-web
+2. Julian Oliver https://julianoliver.com/output/
+3. terra0.org https://terra0.org/
+4. All watched over by machines of loving grace https://vimeo.com/groups/96331/videos/80799353
+5. Technological Determinism https://en.wikipedia.org/wiki/Technological_determinism
+6. gelogical epochs https://www.google.com/search?q=geological+epochs&sxsrf=ACYBGNRivtt_RvFdaTNAfVptX-yJpYZJFw:1568240491824&source=lnms&tbm=isch&sa=X&ved=0ahUKEwj6yb-L58nkAhXJsJ4KHSAED10Q_AUIEigB&biw=1537&bih=897&dpr=1.1#imgrc=iLQ2SrT6BWEOZM:
+7. Reaper Drone https://i.ytimg.com/vi/drUcrbcrJSw/hqdefault.jpg
+8. Ramsey Nassr http://nas.sr/%D9%82%D9%84%D8%A8/
+9. Stephanie Dinkins https://www.stephaniedinkins.com/projects.html
+10. Python Code https://www.programiz.com/python-programming/examples/random-number
+11. Harrison Studio http://theharrisonstudio.net/wp-content/uploads/2011/03/doublemap.jpg
+12. Clarkes 3 laws https://en.wikipedia.org/wiki/Clarke%27s_three_laws
+13. Playboy Lenna https://en.wikipedia.org/wiki/Lenna
+14. All watched over by machines of loving grace poem https://en.wikipedia.org/wiki/All_Watched_Over_by_Machines_of_Loving_Grace
+15. Eyebeam https://www.eyebeam.org/
+16. Rhizome https://rhizome.org/community/opportunities/
+17. C++ Language https://www.programiz.com/c-programming/examples/ASCII-value-character
+18. EsoLang List https://esolangs.org/wiki/Language_list
