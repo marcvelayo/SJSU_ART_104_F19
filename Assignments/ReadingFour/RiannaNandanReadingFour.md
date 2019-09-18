@@ -4,5 +4,6 @@ The genre of Cyberpunk is adjacent to Design Fiction. Though it has many heavily
 
 Lark’s work often has design fiction themes, such as their recent installation on a craigslist-esque personals site designed for the future. 
 
-For me, if I were to create a piece in the vein of design fiction, I would start by thinking how we’re going to interface with digital networks in the future. Right now, cell phones and computers are our main devices, but will these be what we use forever? What kinds of new communicative devices will we have one day?
+For me, if I were to create a piece in the vein of design fiction, I would start by thinking about how we’re going to interface with digital networks in the future. Right now, cell phones and computers are our main devices, but will these be what we use forever? What kinds of new communicative devices will we have one day?
 
+Science fiction can definitely inform the process of creating real technologies. An example is virtual reality - though it isn’t yet what people once predicted it would be, with an entire transportation of consciousness to a virtual world - the concept is the same, and it is constantly being worked on to be better. It is much cheaper and accessible now than ever before, and its technology is always improving. 
