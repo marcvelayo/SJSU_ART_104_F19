@@ -1,5 +1,5 @@
 this is my article
------------------
+=================
 
 Design Fiction can be interpreted in many different ways. For me Design Fiction falls in between imagination and practicality. The process of using imagination to help improve ideas and concepts from the past to the present. While Science Fiction spawns from expanding upon ideas and concepts from the present for the future. They can serve as reflections from our past to help improve technologies as time progresses. Science Fiction allows us to look forward and create a picture of a reality where an idea or concept is tangible.
 
