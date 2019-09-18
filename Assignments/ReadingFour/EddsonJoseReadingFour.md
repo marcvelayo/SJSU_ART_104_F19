@@ -1,0 +1,7 @@
+From the reading, design seems to be a hybrid between engineering and art. One can specialize in certain fields and this specialization can act as the skin to the skeleton that is design. Design is the basis for which all its forms(skins) derive its meaning. 
+
+Apart from typical design practices, design fiction places itself not under a skin but rather beside other skeletons, in this case that is the real and the unreal, fact and fiction. Like science fiction, design fiction is closely tied to conceptual ideas about the future. 
+
+So what is design fiction? I believe, similar to design, design fiction is the creation of a plan but for an imaginative product be it an object, a story, or even a city with the purpose of understanding the reality with which it is placed in. Basically it is to create a product for an imaginative world in the hopes of better understanding it or to critique it. Science fiction deals with the concepts and consequences that result from scientific innovations in an imaginative world. 
+
+An example would be an episode of Black Mirror titled Metalhead. The episode depicts a robot dog hunting down human beings. It serves as a critique for similar inventions today such as drones and Boston Dynamics’s four legged robots. The episode asks the questions, what if the robots we have today were to become what is depicted in the episode? Is this the only future to look forward to? The episode serves to create a better understanding of an imaginative product. 
