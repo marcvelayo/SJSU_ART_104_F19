@@ -74,3 +74,20 @@ Class Website: https://github.com/ablanton/SJSU_ART_104_F19
 16. Rhizome https://rhizome.org/community/opportunities/
 17. C++ Language https://www.programiz.com/c-programming/examples/ASCII-value-character
 18. EsoLang List https://esolangs.org/wiki/Language_list
+
+9/18
+---------
+1. David O'Reilly https://www.youtube.com/watch?v=liKI8dYiEp0
+2. David O'Reilly https://www.youtube.com/watch?v=OxPyN6IK1tM&t=290s
+3. IBM Manhattan https://www.ibm.com/ibm/history/exhibits/vintage/vintage_4506VV2039.html
+4. "Gates Law" https://en.wikipedia.org/wiki/Wirth%27s_law
+5. Behnaz Farahi http://behnazfarahi.com/
+6. Test-tube meat https://www.youtube.com/watch?v=jJrSdKk3YVY
+7. Moores Law https://en.wikipedia.org/wiki/Moore%27s_law
+8. Anouk Wippercht http://www.anoukwipprecht.nl/#intro-1
+9. Euthanasia Rollercoaster https://www.atlasobscura.com/articles/real-rollercoaster-death-euthanasia-coaster
+10. Centrifuge Brain Project https://www.youtube.com/watch?v=RVeHxUVkW4w
+11. Tom Sachs https://www.youtube.com/watch?v=_dr_F2Aho2Y
+12. EyePhone https://www.youtube.com/watch?v=eJyMEkb_8to
+13. iPad Promo https://www.youtube.com/watch?v=YJ5q8Wrkbdw
+14. Minority Report https://www.youtube.com/watch?v=PJqbivkm0Ms
