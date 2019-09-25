@@ -1,3 +1,3 @@
-<h1>Reading Five: Why Good Design Matters by Rawsthorn </h1>
+<h1>Reading Five: Why Good Design Matters by Alice Rawsthorn </h1>
 
- 
+Alice Rawsthorn brings up various good points regarding good design. In all the examples, she brings up cases how design has been useful or detrimental to the end product depending on the quality of the design. The most striking is the last example, as it had to do with the presidential elections, something that effects millions of people. A poor design invalidated thousands of votes, and even though it was made of the best intentions, it still ended up being a huge detriment to the voters of Florida. Bad design is something everyone notices and can complain about, even if they can’t put a finger on what they complaining about. Good design is invisible, but it saves a lot of time, hassle, and money.
